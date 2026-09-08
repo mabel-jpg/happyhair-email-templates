@@ -1,0 +1,1 @@
+# happyhair-email-templates
